@@ -1,2 +1,2 @@
-# Luxe-Quality
+# Luxe Quality
 
